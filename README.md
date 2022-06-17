@@ -32,4 +32,3 @@ Anywhere is OK if you love.
 - Takachiho Gorge
 - 直島
 - Malaysia
-
