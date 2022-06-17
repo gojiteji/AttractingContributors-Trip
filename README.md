@@ -31,3 +31,5 @@ Anywhere is OK if you love.
 - Shinsekai
 - Takachiho Gorge
 - 直島
+- Malaysia
+
